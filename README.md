@@ -1,2 +1,2 @@
 # portfolio
-my portfolio for hire me
+my portfolio to hire me
